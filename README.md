@@ -1,6 +1,6 @@
 # I'm Akshika Rauthan !
 
-🎓 IMS ENGINEERING COLLEGE | B.TECH CS | Aspiring Software Development Engineer
+🎓 IMS ENGINEERING COLLEGE | B.TECH CS | Aspiring Software Development Engineer |
 📍Ghaziabad, India
 
 📊 Currently Working On
